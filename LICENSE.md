@@ -1,4 +1,4 @@
-# 
+# توربو Windscribe VPN سير العمل لـ Mac OS | أصلي Windscribe VPN سير العمل لـ PC Windows. مع دعم OpenVPN و حماية البريد الإلكتروني — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
